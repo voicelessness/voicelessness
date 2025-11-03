@@ -9,7 +9,7 @@
 &nbsp;
 &nbsp;
 <p align="center" style="margin-top:200px;">
-<img src="https://files.catbox.moe/zga54c.webp" alt="img" width="100" height="100">
+<img src="https://files.catbox.moe/hpyzg4.png" alt="img" width="500">
 </p>
 &nbsp;
 &nbsp;
