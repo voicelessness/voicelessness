@@ -4,8 +4,8 @@
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-<p align="center" style="margin-top:200px;">
-<img src="https://files.catbox.moe/8wot3o.gif" alt="img" width="500">
+<p align="center">
+<img src="https://i.postimg.cc/rFdGQ9Dt/8wot3o-ezgif-com-optimize.gif" alt="img" width="500">
 </p>
 &nbsp; <br>
 &nbsp; <br>
